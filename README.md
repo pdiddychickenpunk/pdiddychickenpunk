@@ -7,7 +7,7 @@ building things and solving problems, it is simply the best! I enjoy working on 
 
 # Hobbies
 
-In my free time, I enjoy going to the gym, reading, and listening to music. I have always been a reader and enjoy having a physical paper book to read. I am a big heavy-metal/punk-rock fan, while also enjoying classical music! I know, quite the contrast.
+In my free time, I enjoy going to the gym, reading, and listening to music. I have always been a reader and enjoy having a physical paper book to read. I am a big heavy-metal/punk-rock fan, while also enjoying classical music! I know, quite the contrast in music taste!
 
 
 <!--
